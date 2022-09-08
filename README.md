@@ -1,6 +1,6 @@
 ### Hi there 👋, Hey ! I'm Joy
 #### Dream * Plan * Hardwork
-![Dream * Plan * Hardwork](https://www.linkedin.com/in/ayan-joy-09a93524b/)
+
 
 I'm Joy . I'm a student of Computer Science & Engineering. I have a passion for learning and sharing my knowledge with others as publicly as possible. I love to solve real-world problems. I am strategic, goal-oriented, and always work with an end goal in mind. 
 
